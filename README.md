@@ -1,4 +1,4 @@
 吴粮宇 (Liangyu Wu) 
 
 
-- 🔭 I'm interested in experimental high-energy physics and some astro-particle physics.
+- 🔭 I'm a PhD student interested in experimental high-energy physics.
